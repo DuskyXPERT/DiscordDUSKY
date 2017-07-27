@@ -1,5 +1,1 @@
-# DiscordDUSKY
-DiscordDUSKY
-
-
-YOOOO
+HEY
